@@ -1,1 +1,1 @@
-# Sistemas-de-control---Teor-a-
+# Sistemas-de-control---Teoria-
